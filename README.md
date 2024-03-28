@@ -1,9 +1,9 @@
 - 👋 Hi, welcome to chigua66
-吃瓜天堂 最新地址 👋 (2024-03-16更新)
+吃瓜天堂 最新地址 👋 (2024-03-28更新)
 
-👉免翻入口：https://gua04.fun （最新）
+👉免翻入口：https://ttang01.cc （最新）
 
-👉免翻完整版入口： https://h2s7z9.xnuqiylyj.com （最新）
+👉免翻完整版入口： https://h3dez1.xnuqiylyj.com （最新）
 
 👉免翻入口2： https://cgw13.xyz
 
